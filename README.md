@@ -11,6 +11,12 @@ http://www.youtube.com/watch?v=LUyql0SVobc
 
 http://www.youtube.com/watch?v=ExE5m6BjnV0
 
+or here:
+
+http://v.youku.com/v_show/id_XMjkyMzg5NzQ4.html
+
+http://v.youku.com/v_show/id_XMjk5NTg5MTQ0.html
+
 and the relevant reports are here:
 
 http://www.engadget.com/2011/08/12/quantum-phantom-prototype-lets-you-control-your-computer-screen/
